@@ -69,5 +69,11 @@ This project is licensed under the MIT License.
 
 🙋‍♂️ Author
 Agbozu Ebingiye Nelvin
+
 📧 nelvinebingiye@gmail.com
+
 🔗 @nelvinebi
+
+LinkedIn: *https://www.linkedin.com/in/agbozu-ebi/
+
+
